@@ -1,3 +1,3 @@
 # IceClimbers
 Website for the best Minecraft guild: Ice Climbers!
-https://ayo.so/coldd
+also visit me at https://ayo.so/coldd
